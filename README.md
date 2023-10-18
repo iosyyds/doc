@@ -1,10 +1,10 @@
 # 永久免费、节点、账号
 
-甜甜导航https://iosyyds.net  
-甜甜网盘https://pan.iosyyds.net  
-苹果个人证书购买https://shop.iospro.vip  
-企鹅群[1041440555  ](https://qm.qq.com/q/2ADO9vtTJm)  
-飞机群https://t.me/ixtiantian  
+甜甜ios导航：[https://iosyyds.net  ](https://iosyyds.net/)  
+甜甜ios网盘：[https://pan.iosyyds.net  ](https://pan.iosyyds.net/)  
+苹果个人证书：[https://shop.iospro.vip  ](https://shop.iospro.vip/)  
+企鹅群：[1041440555  ](https://qm.qq.com/q/2ADO9vtTJm)  
+飞机群：[https://t.me/ixtiantian  ](https://t.me/ixtiantian)  
 
 
 ## VPN节点订阅地址
@@ -20,12 +20,12 @@ https://iosyyds.github.io/shadowrocket
 
 ## 【主推】推荐自己在用机场性价比高,速度快
 
-https://xftld.org/index.php#/register?code=W4oKCNPz
+[https://xftld.org/index.php#/register?code=W4oKCNPz](https://xftld.org/index.php#/register?code=W4oKCNPz)
 
 ## 【较卡】一元机场便宜卡卡卡
 
-https://xn--4gq62f52gdss.com/#/register?code=Xm52PnP0
+[https://xn--4gq62f52gdss.com/#/register?code=Xm52PnP0](https://xn--4gq62f52gdss.com/#/register?code=Xm52PnP0)
 
 ## 【抖音留言改地区，主页改IP节点】
 
-https://xn--yfrr86jl0e6wq.com/#/register?code=P3HQ2CgY
+[https://xn--yfrr86jl0e6wq.com/#/register?code=P3HQ2CgY](https://xn--yfrr86jl0e6wq.com/#/register?code=P3HQ2CgY)https://xn--yfrr86jl0e6wq.com/#/register?code=P3HQ2CgY
